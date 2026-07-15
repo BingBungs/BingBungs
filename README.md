@@ -1,6 +1,6 @@
 ## Be a big and super fan of OSC with us!
 
-![](./Have%20fun.jpeg)
+![](./seila.jpeg)
 
 Sometimes in islands, and every time in Main Map
 I a player of Pony Town, and I always online, just find me in Portuguese/Spanish Server (not 18+)
